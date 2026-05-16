@@ -1,4 +1,4 @@
-# 
+# premium NFT Wash Trading Bot for opensea sniper bot | early-mint-access & collection-scanning offers the most advanced opensea sniper bot, with early-mint-access and
 
 
 
